@@ -184,7 +184,7 @@ Information Science Engineering Student
 
 GitHub: https://github.com/ramnathshanbhag2005
 
-LinkedIn: *(Add your LinkedIn URL here)*
+LinkedIn: www.linkedin.com/in/ramnath-shanbhag-j
 
 
 
